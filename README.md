@@ -1,4 +1,4 @@
-My name is Streven if you'd like to discuss anything I have here please reach out to me. I love to talk methodology and find ways to streamline and improve!
+My name is Streven if you'd like to discuss anything I have here please reach out to me. I love to talk methodology and finding ways to streamline and improve!
 
  
 I am currently working on the Google Data Analytics certification and many of the projects you see here are part of that. I have been the unofficial "data guy" on every team I've worked on and I'm now working on making that official. If you know anyone looking for someone in the role let me know!
